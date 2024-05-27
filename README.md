@@ -1,1 +1,1 @@
-# tech_alpha
+TECH ALPHA INTERNSHIP TASK
